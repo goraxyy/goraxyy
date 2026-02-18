@@ -1,3 +1,3 @@
-## heyyy
+## 🌶️ heyyy 
 
-making whatever kills boredom
+making whatever kills boredom 🥱
